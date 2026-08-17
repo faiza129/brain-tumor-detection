@@ -23,9 +23,7 @@ Project Components
 
     Insha Fatima
 
-    Alafiya Irshad
-
-    Aman Mirza
+    Kaneez Zehra
 
 ## Disclaimer
 
